@@ -4,6 +4,6 @@
 
 All meetings take place on the first Friday of every month from approximately 5 pm to 8 pm local time unless otherwise noted.
 
-https://www.2600.com/
+https://2600.com/
 
-https://www.2600.com/meetings/
+https://2600.com/meetings/
